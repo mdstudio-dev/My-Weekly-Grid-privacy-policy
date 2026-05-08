@@ -1,4 +1,3 @@
-# Privacy Policy for My Weekly Grid
 
 **Last Updated:** May 8, 2026
 
